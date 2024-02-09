@@ -47,7 +47,6 @@
         <p>Hiii Aliii, I would like you to be my Valentine this upcoming February 14. If you're interested just reply me via Instagram or emaail.</p>
         <p>Date: February 14th</p>
         <p>Time: Any day basta Feb 14</p>
-        <p>Location: Roblox</p>
         <p>I love you so much Ali<p>
         <p>Just answer anytime you want, I don't want you to pressure you as long as it's before February 14<p>
        
